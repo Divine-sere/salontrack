@@ -102,4 +102,4 @@ Private - All rights reserved
 
 ## Contact
 
-For business inquiries about SalonTrack, please contact [your-email@domain.com]
+For business inquiries about SalonTrack, please contact [divineehanire2@gmail.com]
